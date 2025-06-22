@@ -41,7 +41,7 @@
 
 Feel free to reach out if you’re working on something cool, want to collaborate, or just say hi!
 
-- 💌 Email: [your.email@example.com](mailto:your.email@example.com)  
+- 💌 Email: [your.email@example.com](mailto:officialnnennaewa@gmail.com)  
 - 🔗 LinkedIn: [linkedin.com/in/nnennaewa](https://linkedin.com/in/nnennaewa)
 
 ---
